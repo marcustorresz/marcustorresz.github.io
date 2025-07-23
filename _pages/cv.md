@@ -13,5 +13,5 @@ Education
 ======
 * B.A. in Political Science, Universidade Federal de Pernambuco, 2017
 * M.A. in Political Science, Universidade Federal de Pernambuco, 2019
-* Ph.D in Political Science, Universidade Federal de Pernambuco, 2023 (Expected)
+* Ph.D in Political Science, Universidade Federal de Pernambuco, 2025 (Expected)
 
